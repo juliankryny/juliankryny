@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @juliankryny
+- 👀 I’m interested in ... monke games cool videos of math geomotry stuff or science
+- 🌱 I’m currently learning ... to many things
+- 💞️ I’m looking to collaborate on ... like nothing
+- 📫 How to reach me ... julian.krynytskyy6@gmail.com
